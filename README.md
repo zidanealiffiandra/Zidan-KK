@@ -1,3 +1,3 @@
 # Zidan-KK
 Konsentrasi Keahlian
-Zidan Ganteng
+dubes jaya
